@@ -1,3 +1,4 @@
+![](/images/Joash2.jpg)
 # portfolio
 **Roads that I have travelled and skills gained along the way...**
 
