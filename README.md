@@ -1,6 +1,6 @@
 # portfolio
 
-![](/images/photo.jpg)
+![](/images/power-button.png)
 
 **Roads that I have travelled and skills gained along the way...**
 
