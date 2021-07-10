@@ -10,4 +10,4 @@ Today, I tell stories; mined from rocks with numbers. Some rocks are buried in m
 
 It is a bonus if you call me a __data specialist__, an agile software developer or a __visual storyteller__. I go by many names depending on which data store I am invading. For the last 10+ years, I have chopped up data on design boards, modelled interesting parts in furnices lit by bad-ass algorithms, and built evidence-based data workflows. When heavenly stars are out, and twinkling, I teach my data models stuff about predictive thinking in machine learning (ML) and artificial intelligence (AI). Most times however, I ride a white horse with a Twitter handle over the Internet scouting, discovering and visualizing critical insights, hidden patterns, and valuable [sentiments](sahmiye-twitter.html) in text-based data through statistical analysis and deep learning techniques. 
 
-Let's say, I love rainbows! 
+Let's say, I love chasing rainbows! 
