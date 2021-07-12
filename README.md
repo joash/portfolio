@@ -2,7 +2,7 @@
 
 ![](/images/power-button.png)
 
-**Press that button...Lights!**
+**I am the one!**
 
 It was rusty and clumsy. Baptized the 'Madaraka Express', the smoking train finally snaked its way through a late sunrise into Nairobi. A bunch of lazy hyenas scattered into thickets thick with dew, laughing. Three days of misery riding this fatigued iron horse out of my village, and four years later studying the art of story telling with a bunch of witty Professors, I knew that my fate was boldy sealed. I would be sitting patiently like a buffalo, while some silly fly tried to bite my ass. Accidentally, I also won myself the best-student award by hungrily squeezing juice out of Statistics and Computer Science books. Most times I caught those top-grades in hiralious ambushes; late night book-worming!   
 
