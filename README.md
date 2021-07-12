@@ -14,4 +14,4 @@ Back at my village, when Blackie, our one-horned cow moos at sunset, my mother t
 
 Most times however, I join the crabs and ride a verocious white cancer-branded baby horse called __"Sahmiye"__, with a Twitter handle __@inNz10__(_in-new-zone-10_) hanging over my ass on the Internet. It's fun; I sniff, scout, discover and visualize critical insights, hidden patterns, and valuable [sentiments](sahmiye-twitter.html) in text-based data using the holy grail in statistical analysis and deep learning techniques. 
 
-Let's say...like my relatives the sea Crabs, and mountain gorillas, I love digging magical holes using a dagger made in steel from R and Python, just to sniff out fresh data in the sand of time! 
+Let's say...like the sea crabs, and mountain gorillas, I love digging magical holes using special daggers made in steel from R and Python...just to sniff out fresh data in the sand of time because I am the one!
