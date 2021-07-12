@@ -1,6 +1,6 @@
 # portfolio
 
-![](/images/power-button.png)
+![](/images/crab.jpg)
 
 **I am the one!**
 
