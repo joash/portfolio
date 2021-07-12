@@ -1,7 +1,5 @@
 # portfolio
 
-![](/images/crab.jpg)
-
 **I am the one!**
 
 Baptized the 'Madaraka Express', the smoking train finally snaked its way through a late sunrise into Nairobi. The Express was rusty and clumsy. A bunch of lazy hyenas scattered into thickets thick with dew. They laughed at the Express. These saliva drenched beasts wouldn't stand the smell of dreamers on board. Three days of misery perched like a bat against a window on this iron horse out of my village, and four years later studying the art of story telling with a bunch of witty Professors, I knew that my fate was boldy sealed. I would be sitting patiently like an old buffalo chewing cud, while some silly female mosquitoes tried to bite my ass. Accidentally, as my village manners were being replaced by city jeans, I won myself the best-student award by hungrily squeezing avocado juice out of Statistics and Computer Science books. Like a mouse trap, I caught those top-grades in hiralious ambushes; late night book-worming and some cheese in my dreams!   
